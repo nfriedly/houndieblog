@@ -108,7 +108,7 @@ Another nice surprise was that I got to ride within view of the Longaberger Bask
 
 ![Suddenly, Longaberger!](day-2/PXL_20230522_202055222.jpg)
 
-The last bit of trip involves me riding down OH-146, which as a terrifying nightmare.  As a general rule I try and stay away from state routes as they tend to be heavily trafficked, but sometimes there is no way around it.  There were a lot of cars driving very fast on this road, and it generally did not feel super safe.  The America Noodle did the most work today for sure at encouraging cars to drive a safe distance away.
+The last bit of trip involves me riding down OH-146, which was a terrifying nightmare.  As a general rule I try and stay away from state routes as they tend to be heavily trafficked, but sometimes there is no way around it.  There were a lot of cars driving very fast on this road, and it generally did not feel super safe.  The America Noodle did the most work today for sure at encouraging cars to drive a safe distance away.
 
 I eventually arrived at the campground, and found my campsite.  My tent was new for this trip, luckily it was easy to set up (and much more roomy than my old 1 person tent!).
 
